@@ -9,6 +9,3 @@ Test1
 Tomato Sauce is Garbage , and its bad 
 
 
-I like veg's , like to do running , hikking , watch movies , listening to some music , like to read some books , then finally like to learn French. (KK)
-
-
